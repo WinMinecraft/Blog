@@ -5,3 +5,5 @@
 女比男高30%
 ## 或许，她们验证了这位同学的说法
 [点击跳转](https://www.bilibili.com/video/BV11fCJYjE6u/?vd_source=7fe5e2cd0c66b1ec6a324c735544f8ad#reply250944822368)
+## 杂项
+![](https://github.com/WinMinecraft/Blog/blob/main/Snipaste_2024-12-29_17-02-50.png)
